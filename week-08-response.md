@@ -1,0 +1,3 @@
+I think that sone of the "tools" that may be seen on the internet many often times can be unecessary. The internet can be a useful and also beneficial thing but often times the internet has a lot of unecessary things that can pop up and one of them may be scams or ghost account profiles that may lead you to press a link to try and scam you. 
+
+In the text, ads also pop up. I believe that if people want to look for items to shop for or purchase anything in particular, they can easily do so instead of having to stand seeing unecessary marketing ads or schemes which can sometimes even be fake and be a scam. 
