@@ -1,0 +1,4 @@
+I think Social Media TOOLS can be useful for certain marketing schemes. There has been times where in my opinion, social media has been a "non-real" tool. What I mean by that is that sometimes the internet is filled with nonsense and biased publications that do not correlate.
+I agree with the text in many points.
+
+For Example, I have seen many posts on some social medias where the publisher wants you to think the same as they do. An example I would use would be a sports related example. Obviously sports is a debated subject, but there is now deyninng that there are very biased publications to try to make you agree with the writer. Saying Messi is an absolute garbage of a soccer player is without a doubt an opinion. It is a debatable and arguable topic but it is only an opinion and one is entittled to have their own opinion.
